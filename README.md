@@ -19,7 +19,7 @@ Just your voice → ready-to-post copy.
 ## Want to Try It?
 
 🚪 [JOIN THE DEMO GROUP ON TELEGRAM](https://t.me/+WXEDwaT6yAU2Mzhh)  
-(We auto-delete messages every 24 hours to keep it clean.)
+TRY IT BEFORE YOU BUY IT
 
 ---
 
